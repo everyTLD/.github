@@ -5,4 +5,4 @@ Join us, while we and you make new DNS, Open, Secure and new Network.
 
  #### Last Update: 28.08.2024
  #### Islamic: 24 Safar, 1446
- #### Jewish: 24 Tammuz 5784
+ #### Jewish: 20 Tevet, 5784
